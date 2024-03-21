@@ -1,6 +1,8 @@
 ### Hi there 👋
 
-<div style="width:100%;height:0;padding-bottom:100%;position:relative;"><iframe src="https://giphy.com/embed/CrFLL3CnRpw5ddlBMm" width="100%" height="100%" style="position:absolute" frameBorder="0" class="giphy-embed" allowFullScreen></iframe></div><p><a href="https://giphy.com/gifs/CleverCodeLab-cat-cute-coffee-CrFLL3CnRpw5ddlBMm">via GIPHY</a></p>
+<div style="width:100%;height:0;padding-bottom:100%;position:relative;">
+  <img src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExN3BobXBodnFtbzM4b3h1ZTNnNjdmczBsODM4Njg5enVpNmd5b3M3biZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/CrFLL3CnRpw5ddlBMm/giphy.gif" width="100" />
+</div>
 
 <!--
 **ThinleyN/ThinleyN** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
