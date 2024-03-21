@@ -7,6 +7,8 @@
 </div>
 
 [![Linkedin Badge](https://img.shields.io/badge/LinkedIn-blue?logo=linkedin&logoColor=white&style=for-the-badge)](https://www.linkedin.com/in/thinley-norbu-652847167/)
+![YouTube Channel Views](https://img.shields.io/youtube/channel/views/UCYRLqThkOVjysBOM6fgkqmQ)
+
 
 
 <!--
