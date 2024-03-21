@@ -1,4 +1,4 @@
-<div style="text-align: center; font-weight: bold">
+<div align="center" style="font-weight: bold;">
   Welcome to dev life. Ready for another deadline? 👋
 </div>
 
