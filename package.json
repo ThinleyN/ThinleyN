@@ -1,0 +1,18 @@
+{
+  "name": "thinleyn",
+  "version": "1.0.0",
+  "description": "<h1 align=\"center\">   Welcome to dev life. Ready for another deadline? 👋 </h1>",
+  "main": "index.js",
+  "type": "module",
+  "scripts": {
+    "test": "echo \"Error: no test specified\" && exit 1"
+  },
+  "author": "",
+  "license": "ISC",
+  "dependencies": {
+    "dotenv": "^16.4.5",
+    "mustache": "^4.2.0",
+    "node-fetch": "^3.3.2",
+    "puppeteer": "^22.6.0"
+  }
+}
