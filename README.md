@@ -1,6 +1,6 @@
-<div align="center" style="font-weight: bold;">
+<h1 align="center">
   Welcome to dev life. Ready for another deadline? 👋
-</div>
+</h1>
 
 <div style="width:100%;height:0;padding-bottom:100%;position:relative;" align="center">
   <img src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExN3BobXBodnFtbzM4b3h1ZTNnNjdmczBsODM4Njg5enVpNmd5b3M3biZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/CrFLL3CnRpw5ddlBMm/giphy.gif" width="100" />
