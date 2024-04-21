@@ -11,7 +11,7 @@
 ![GitHub followers](https://img.shields.io/github/followers/thinleyN)
 
 
-:computer: About me:
+:computer: About me: 
 ---
 <ul>
   <li>
@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Culture is the most powerful force in humanity under God
+I give up drinking every week
