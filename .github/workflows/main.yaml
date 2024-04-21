@@ -6,7 +6,7 @@ on:
       - main
   schedule:
     # README updates every day midnight
-    - cron: '0 */1 * * *'
+    - cron: '0 0 * * *'
 
 jobs:
   build:
