@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-We will change the paradigm
+Manga all day
