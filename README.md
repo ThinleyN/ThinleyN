@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Manga all day
+I still think I am the greatest.
