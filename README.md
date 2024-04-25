@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Winning is the only option
+The world needs more Joy... this idea is super fresh
