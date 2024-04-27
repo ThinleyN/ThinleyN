@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I am the head of Adidas. I will bring Adidas and Puma back together and bring me and jay back together
+I feel like me and Taylor might still have sex
