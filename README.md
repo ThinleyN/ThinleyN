@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Winning is the only option
+I love UZI. I be saying the same thing about Steve Jobs. I be feeling just like UZI
