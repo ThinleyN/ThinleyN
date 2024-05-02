@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I love UZI. I be saying the same thing about Steve Jobs. I be feeling just like UZI
+People always tell you &#39;Be humble. Be humble.&#39; When was the last time someone told you to be amazing? Be great! Be awesome! Be awesome!
