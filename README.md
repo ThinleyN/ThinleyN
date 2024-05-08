@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-2024
+Who made up the term major label in the first place???
