@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Who made up the term major label in the first place???
+I&#39;m the new Moses
