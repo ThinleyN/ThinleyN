@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-The world is our office
+Let&#39;s be like water
