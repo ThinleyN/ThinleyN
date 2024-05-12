@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Let&#39;s be like water
+My dad got me a drone for Christmas
