@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-My first pillar when I&#39;m on the board of adidas will be an adidas Nike collaboration to support community growth
+Who made up the term major label in the first place???
