@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I feel like me and Taylor might still have sex
+You can&#39;t look at a glass half full or empty if it&#39;s overflowing.
