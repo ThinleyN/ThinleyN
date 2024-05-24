@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-My mama was a&#39; English teacher. I know how to use correct English but sometimes I just don&#39;t feel like it aaaand I ain&#39;t got to
+I honestly need all my Royeres to be museum quality... if I see a fake Royere Ima have to Rick James your couch
