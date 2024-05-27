@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I&#39;m on the pursuit of awesomeness, excellence is the bare minimum.
+I need an army of angels to cover me while I pull this sword out of the stone
