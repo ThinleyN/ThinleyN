@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I need an army of angels to cover me while I pull this sword out of the stone
+One day I&#39;m gon&#39; marry a porn star
