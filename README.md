@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-One day I&#39;m gon&#39; marry a porn star
+People tried to talk me out of running for President. Never let weak controlling people kill your spirit
