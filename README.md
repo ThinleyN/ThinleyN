@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-People tried to talk me out of running for President. Never let weak controlling people kill your spirit
+If you have the opportunity to play this game of life you need to appreciate every moment. a lot of people don&#39;t appreciate the moment until it&#39;s passed.
