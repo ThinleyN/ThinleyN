@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Buy property
+Sometimes you have to get rid of everything
