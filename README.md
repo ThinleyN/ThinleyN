@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Sometimes you have to get rid of everything
+I honestly need all my Royeres to be museum quality... if I see a fake Royere Ima have to Rick James your couch
