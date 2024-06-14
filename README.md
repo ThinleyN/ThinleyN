@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I honestly need all my Royeres to be museum quality... if I see a fake Royere Ima have to Rick James your couch
+You can&#39;t look at a glass half full or empty if it&#39;s overflowing.
