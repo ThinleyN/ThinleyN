@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I&#39;d like to meet with Tim Cook. I got some ideas
+I&#39;m going to personally see to it that Taylor Swift gets her masters back. Scooter is a close family friend
