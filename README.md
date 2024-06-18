@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I&#39;m going to personally see to it that Taylor Swift gets her masters back. Scooter is a close family friend
+For me to say I wasn&#39;t a genius I&#39;d just be lying to you and to myself
