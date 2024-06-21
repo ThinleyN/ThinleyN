@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Man... whatever happened to my antique fish tank?
+2024
