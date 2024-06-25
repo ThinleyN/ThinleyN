@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Sometimes you have to get rid of everything
+I am Warhol. I am the No. 1 most impactful artist of our generation. I am Shakespeare in the flesh.
