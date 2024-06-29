@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I honestly need all my Royeres to be museum quality... if I see a fake Royere Ima have to Rick James your couch
+We used to diss Michael Jackson the media made us call him crazy ... then they killed him
