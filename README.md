@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-We used to diss Michael Jackson the media made us call him crazy ... then they killed him
+People tried to talk me out of running for President. Never let weak controlling people kill your spirit
