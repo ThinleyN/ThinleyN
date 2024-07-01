@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-People tried to talk me out of running for President. Never let weak controlling people kill your spirit
+If I got any cooler I would freeze to death
