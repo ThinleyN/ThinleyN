@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Man... whatever happened to my antique fish tank?
+I really love my Tesla. I&#39;m in the future. Thank you Elon.
