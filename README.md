@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I really love my Tesla. I&#39;m in the future. Thank you Elon.
+If you have the opportunity to play this game of life you need to appreciate every moment. a lot of people don&#39;t appreciate the moment until it&#39;s passed.
