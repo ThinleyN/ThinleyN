@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-If you have the opportunity to play this game of life you need to appreciate every moment. a lot of people don&#39;t appreciate the moment until it&#39;s passed.
+If I don&#39;t scream, if I don&#39;t say something then no one&#39;s going to say anything.
