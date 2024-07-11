@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I give up drinking every week
+Buy property
