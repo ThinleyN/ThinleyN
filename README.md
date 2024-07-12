@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Buy property
+We will heal. We will cure.
