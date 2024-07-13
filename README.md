@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-We will heal. We will cure.
+Man... whatever happened to my antique fish tank?
