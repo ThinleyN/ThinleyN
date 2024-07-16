@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I still think I am the greatest.
+We&#39;re going to move the entire music industry into the 21st Century
