@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-We&#39;re going to move the entire music industry into the 21st Century
+My greatest pain in life is that I will never be able to see myself perform live.
