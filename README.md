@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Style is genderless
+Shut the fuck up I will fucking laser you with alien fucking eyes and explode your fucking head
