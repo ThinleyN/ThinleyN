@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Shut the fuck up I will fucking laser you with alien fucking eyes and explode your fucking head
+I make awesome decisions in bike stores!!!
