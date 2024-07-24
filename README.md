@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I make awesome decisions in bike stores!!!
+I&#39;m giving all Good music artists back the 50% share I have of their masters
