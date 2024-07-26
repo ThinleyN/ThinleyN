@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Let&#39;s be like water
+People tried to talk me out of running for President. Never let weak controlling people kill your spirit
