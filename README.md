@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-We came into a broken world. And we&#39;re the cleanup crew.
+Life is the ultimate gift
