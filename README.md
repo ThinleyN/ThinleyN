@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Life is the ultimate gift
+I still think I am the greatest.
