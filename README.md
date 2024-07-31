@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I still think I am the greatest.
+Perhaps I should have been more like water today
