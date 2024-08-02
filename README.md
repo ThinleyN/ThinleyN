@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-George Bush doesn&#39;t care about black people
+I care. I care about everything. Sometimes not giving a f#%k is caring the most.
