@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-You basically can say anything to someone on an email or text as long as you put LOL at the end.
+We&#39;re going to move the entire music industry into the 21st Century
