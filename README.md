@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Who made up the term major label in the first place???
+Truth is my goal. Controversy is my gym. I&#39;ll do a hundred reps of controversy for a 6 pack of truth
