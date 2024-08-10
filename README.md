@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Pulling up in the may bike
+I give up drinking every week
