@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I don&#39;t wanna see no woke tweets or hear no woke raps ... it&#39;s show time ... it&#39;s a whole different energy right now
+If I don&#39;t scream, if I don&#39;t say something then no one&#39;s going to say anything.
