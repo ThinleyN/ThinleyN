@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-If I don&#39;t scream, if I don&#39;t say something then no one&#39;s going to say anything.
+I&#39;m going to personally see to it that Taylor Swift gets her masters back. Scooter is a close family friend
