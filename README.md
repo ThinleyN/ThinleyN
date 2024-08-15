@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I&#39;m going to personally see to it that Taylor Swift gets her masters back. Scooter is a close family friend
+We&#39;re going to move the entire music industry into the 21st Century
