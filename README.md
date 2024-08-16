@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-We&#39;re going to move the entire music industry into the 21st Century
+I honestly need all my Royeres to be museum quality... if I see a fake Royere Ima have to Rick James your couch
