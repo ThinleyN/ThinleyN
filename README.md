@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Keep squares out yo circle
+I&#39;m on the pursuit of awesomeness, excellence is the bare minimum.
