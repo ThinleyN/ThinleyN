@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Style is genderless
+There are people sleeping in parking lots
