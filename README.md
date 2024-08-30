@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-There&#39;s so many lonely emojis man
+We all self-conscious. I&#39;m just the first to admit it.
