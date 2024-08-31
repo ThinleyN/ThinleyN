@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-We all self-conscious. I&#39;m just the first to admit it.
+I don&#39;t wanna see no woke tweets or hear no woke raps ... it&#39;s show time ... it&#39;s a whole different energy right now
