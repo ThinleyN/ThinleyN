@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-If I got any cooler I would freeze to death
+Shut the fuck up I will fucking laser you with alien fucking eyes and explode your fucking head
