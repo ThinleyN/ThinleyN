@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Shut the fuck up I will fucking laser you with alien fucking eyes and explode your fucking head
+People say it&#39;s enough and I got my point across ... the point isn&#39;t across until we cross the point
