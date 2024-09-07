@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Decentralize
+The world needs more Joy... this idea is super fresh
