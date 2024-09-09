@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-We will be recognized
+I really love my Tesla. I&#39;m in the future. Thank you Elon.
