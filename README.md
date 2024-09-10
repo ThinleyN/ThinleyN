@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I really love my Tesla. I&#39;m in the future. Thank you Elon.
+I want the world to be better! All I want is positive! All I want is dopeness!
