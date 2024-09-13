@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Believe in your flyness...conquer your shyness.
+I&#39;ll say things that are serious and put them in a joke form so people can enjoy them. We laugh to keep from crying.
