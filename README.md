@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I&#39;ll say things that are serious and put them in a joke form so people can enjoy them. We laugh to keep from crying.
+I am Warhol. I am the No. 1 most impactful artist of our generation. I am Shakespeare in the flesh.
