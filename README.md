@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Life is the ultimate gift
+Let&#39;s be like water
