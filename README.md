@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-One of my favorite of many things about what the Trump hat represents to me is that people can&#39;t tell me what to do because I&#39;m black
+Tweeting is legal and also therapeutic
