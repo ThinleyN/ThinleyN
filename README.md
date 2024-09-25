@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-People always say that you can&#39;t please everybody. I think that&#39;s a cop-out. Why not attempt it? Cause think of all the people that you will please if you try.
+I hear people say this person is cool and this person is not cool. People are cool. Man has never invented anything as awesome as a an actual person but sometimes we value the objects we create over life itself
