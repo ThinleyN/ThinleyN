@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Keep squares out yo circle
+I love sleep; it&#39;s my favorite.
