@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-People only get jealous when they care.
+I channel Will Ferrell when I&#39;m at the daddy daughter dances
