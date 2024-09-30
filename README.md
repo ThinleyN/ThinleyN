@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I channel Will Ferrell when I&#39;m at the daddy daughter dances
+I really love my Tesla. I&#39;m in the future. Thank you Elon.
