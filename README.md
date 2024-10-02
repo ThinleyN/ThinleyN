@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-There&#39;s so many lonely emojis man
+There are people sleeping in parking lots
