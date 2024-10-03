@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-There are people sleeping in parking lots
+Everything you do in life stems from either fear or love
