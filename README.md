@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Everything you do in life stems from either fear or love
+I love sleep; it&#39;s my favorite.
