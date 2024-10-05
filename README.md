@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I love sleep; it&#39;s my favorite.
+I watch Bladerunner on repeat
