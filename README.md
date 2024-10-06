@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I watch Bladerunner on repeat
+My first pillar when I&#39;m on the board of adidas will be an adidas Nike collaboration to support community growth
