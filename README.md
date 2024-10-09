@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Keep squares out yo circle
+I&#39;d like to meet with Tim Cook. I got some ideas
