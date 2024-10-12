@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I think I do myself a disservice by comparing myself to Steve Jobs and Walt Disney and human beings that we&#39;ve seen before. It should be more like Willy Wonka...and welcome to my chocolate factory.
+I want the world to be better! All I want is positive! All I want is dopeness!
