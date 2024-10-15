@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Decentralize
+We have to evolve
