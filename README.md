@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-We have to evolve
+I still think I am the greatest.
