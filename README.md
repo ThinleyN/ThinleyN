@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I still think I am the greatest.
+Speak God&#39;s truth to power
