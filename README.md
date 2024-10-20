@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I feel calm but energized
+For me giving up is way harder than trying.
