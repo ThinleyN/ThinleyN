@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-For me giving up is way harder than trying.
+Everything you do in life stems from either fear or love
