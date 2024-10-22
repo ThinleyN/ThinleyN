@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Everything you do in life stems from either fear or love
+There are 5 main pillars in a professional musicians business - Recording, Publishing, Touring, Merchandise &amp; Name and likeness
