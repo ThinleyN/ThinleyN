@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-There are 5 main pillars in a professional musicians business - Recording, Publishing, Touring, Merchandise &amp; Name and likeness
+Sometimes I push the door close button on people running towards the elevator. I just need my own elevator sometimes. My sanctuary.
