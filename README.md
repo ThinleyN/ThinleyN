@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Sometimes I push the door close button on people running towards the elevator. I just need my own elevator sometimes. My sanctuary.
+People tried to talk me out of running for President. Never let weak controlling people kill your spirit
