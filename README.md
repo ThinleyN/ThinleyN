@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I love UZI. I be saying the same thing about Steve Jobs. I be feeling just like UZI
+Perhaps I should have been more like water today
