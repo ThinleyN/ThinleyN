@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Burn that excel spread sheet
+I am the head of Adidas. I will bring Adidas and Puma back together and bring me and jay back together
