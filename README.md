@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I am the head of Adidas. I will bring Adidas and Puma back together and bring me and jay back together
+You can&#39;t look at a glass half full or empty if it&#39;s overflowing.
