@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-You can&#39;t look at a glass half full or empty if it&#39;s overflowing.
+I wish I had a friend like me
