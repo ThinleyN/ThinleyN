@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I wish I had a friend like me
+You basically can say anything to someone on an email or text as long as you put LOL at the end.
