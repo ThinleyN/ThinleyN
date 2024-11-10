@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I give up drinking every week
+There are people sleeping in parking lots
