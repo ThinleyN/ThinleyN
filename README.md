@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-So many of us need so much less than we have especially when so many of us are in need
+I&#39;ve known my mom since I was zero years old. She is quite dope.
