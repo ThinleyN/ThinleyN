@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I&#39;ve known my mom since I was zero years old. She is quite dope.
+We must and will cure homelessness and hunger. We have the capability as a species
