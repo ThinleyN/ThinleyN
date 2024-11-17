@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Artists are founders
+We are here to complete the revolution. We are building the future
