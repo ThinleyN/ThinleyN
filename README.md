@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-The world needs more Joy... this idea is super fresh
+The media tries to kill our heroes one at a time
