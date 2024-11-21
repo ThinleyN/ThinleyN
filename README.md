@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-The media tries to kill our heroes one at a time
+I&#39;m on the pursuit of awesomeness, excellence is the bare minimum.
