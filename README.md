@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Sometimes you have to get rid of everything
+Speak God&#39;s truth to power
