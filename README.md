@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Speak God&#39;s truth to power
+I make awesome decisions in bike stores!!!
