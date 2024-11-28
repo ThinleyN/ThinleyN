@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-The thought police want to suppress freedom of thought
+We will cure hunger
