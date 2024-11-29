@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-We will cure hunger
+If I got any cooler I would freeze to death
