@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I&#39;m a creative genius
+Shut the fuck up I will fucking laser you with alien fucking eyes and explode your fucking head
