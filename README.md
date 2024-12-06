@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Tweeting is legal and also therapeutic
+There are 5 main pillars in a professional musicians business - Recording, Publishing, Touring, Merchandise &amp; Name and likeness
