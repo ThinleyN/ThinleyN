@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-People only get jealous when they care.
+We are here to complete the revolution. We are building the future
