@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-We are here to complete the revolution. We are building the future
+Believe in your flyness...conquer your shyness.
