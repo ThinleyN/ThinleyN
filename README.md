@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Believe in your flyness...conquer your shyness.
+I give up drinking every week
