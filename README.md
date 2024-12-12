@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I spoke to Dave Chapelle for two hours this morning. He is our modern day Socrates
+I really love my Tesla. I&#39;m in the future. Thank you Elon.
