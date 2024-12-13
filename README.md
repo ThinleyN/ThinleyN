@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I really love my Tesla. I&#39;m in the future. Thank you Elon.
+Culture is the most powerful force in humanity under God
