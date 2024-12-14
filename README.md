@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Culture is the most powerful force in humanity under God
+We as a people will heal. We will insure the well being of each other
