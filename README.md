@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-People only get jealous when they care.
+I give up drinking every week
