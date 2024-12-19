@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I give up drinking every week
+I care. I care about everything. Sometimes not giving a f#%k is caring the most.
