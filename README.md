@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-The media tries to kill our heroes one at a time
+For me giving up is way harder than trying.
