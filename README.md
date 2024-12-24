@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Life is the ultimate gift
+I make awesome decisions in bike stores!!!
