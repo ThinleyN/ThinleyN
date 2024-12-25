@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I make awesome decisions in bike stores!!!
+All you have to be is yourself
