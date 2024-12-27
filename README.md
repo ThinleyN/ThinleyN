@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-My memories are from the future
+Everything you do in life stems from either fear or love
