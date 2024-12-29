@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-George Bush doesn&#39;t care about black people
+We&#39;re going to move the entire music industry into the 21st Century
