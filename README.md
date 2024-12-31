@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Man... whatever happened to my antique fish tank?
+George Bush doesn&#39;t care about black people
