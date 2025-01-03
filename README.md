@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-People say it&#39;s enough and I got my point across ... the point isn&#39;t across until we cross the point
+I honestly need all my Royeres to be museum quality... if I see a fake Royere Ima have to Rick James your couch
