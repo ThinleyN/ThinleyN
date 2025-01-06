@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-We as a people will heal. We will insure the well being of each other
+If you have the opportunity to play this game of life you need to appreciate every moment. a lot of people don&#39;t appreciate the moment until it&#39;s passed.
