@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I&#39;m a creative genius
+One day I&#39;m gon&#39; marry a porn star
