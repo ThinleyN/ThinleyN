@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Everything you do in life stems from either fear or love
+My mother in law Kris Jenner ... makes the best music playlist
