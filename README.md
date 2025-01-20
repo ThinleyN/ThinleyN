@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-My mother in law Kris Jenner ... makes the best music playlist
+People only get jealous when they care.
