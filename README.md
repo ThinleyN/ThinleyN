@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I love sleep; it&#39;s my favorite.
+Empathy is the glue
