@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Empathy is the glue
+George Bush doesn&#39;t care about black people
