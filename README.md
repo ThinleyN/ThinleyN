@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Keep your nose out the sky, keep your heart to god, and keep your face to the rising sun.
+Ma$e is one of my favorite rappers and I based a lot of my flows off of him
