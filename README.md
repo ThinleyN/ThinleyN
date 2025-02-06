@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-We are here to complete the revolution. We are building the future
+We all self-conscious. I&#39;m just the first to admit it.
