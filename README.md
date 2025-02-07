@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-We all self-conscious. I&#39;m just the first to admit it.
+I honestly need all my Royeres to be museum quality... if I see a fake Royere Ima have to Rick James your couch
