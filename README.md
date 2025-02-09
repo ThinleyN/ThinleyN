@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I&#39;m going to personally see to it that Taylor Swift gets her masters back. Scooter is a close family friend
+I love UZI. I be saying the same thing about Steve Jobs. I be feeling just like UZI
