@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I love UZI. I be saying the same thing about Steve Jobs. I be feeling just like UZI
+People tried to talk me out of running for President. Never let weak controlling people kill your spirit
