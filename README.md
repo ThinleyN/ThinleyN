@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-People tried to talk me out of running for President. Never let weak controlling people kill your spirit
+I am running for President of the United States
