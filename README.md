@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I am running for President of the United States
+The world is our office
