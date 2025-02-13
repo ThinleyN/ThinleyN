@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-The world is our office
+Distraction is the enemy of vision
