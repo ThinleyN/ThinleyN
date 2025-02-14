@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Distraction is the enemy of vision
+We must and will cure homelessness and hunger. We have the capability as a species
