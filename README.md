@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Man... whatever happened to my antique fish tank?
+If you have the opportunity to play this game of life you need to appreciate every moment. a lot of people don&#39;t appreciate the moment until it&#39;s passed.
