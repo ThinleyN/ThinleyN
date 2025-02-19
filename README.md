@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I&#39;m the best
+I feel like me and Taylor might still have sex
