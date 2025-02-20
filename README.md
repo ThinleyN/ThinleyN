@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I feel like me and Taylor might still have sex
+I&#39;m giving all Good music artists back the 50% share I have of their masters
