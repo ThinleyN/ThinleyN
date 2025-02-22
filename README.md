@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-2024
+I&#39;m the best
