@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-We will be recognized
+I still think I am the greatest.
