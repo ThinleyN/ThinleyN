@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I still think I am the greatest.
+My mother in law Kris Jenner ... makes the best music playlist
