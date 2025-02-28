@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Manga all day
+Distraction is the enemy of vision
