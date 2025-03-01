@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Distraction is the enemy of vision
+There&#39;s so many lonely emojis man
