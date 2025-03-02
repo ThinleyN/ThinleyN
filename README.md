@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-There&#39;s so many lonely emojis man
+I really love my Tesla. I&#39;m in the future. Thank you Elon.
