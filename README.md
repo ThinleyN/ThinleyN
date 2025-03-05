@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Style is genderless
+My mother in law Kris Jenner ... makes the best music playlist
