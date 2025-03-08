@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I make awesome decisions in bike stores!!!
+People tried to talk me out of running for President. Never let weak controlling people kill your spirit
