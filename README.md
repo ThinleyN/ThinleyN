@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I wish I had a friend like me
+We came into a broken world. And we&#39;re the cleanup crew.
