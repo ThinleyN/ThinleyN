@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Culture is the most powerful force in humanity under God
+I feel calm but energized
