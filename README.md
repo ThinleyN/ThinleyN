@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Only free thinkers
+There&#39;s a crying need for civility across the board. We need to and will come together in the name of Jesus.
