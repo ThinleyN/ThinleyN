@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I wish I had a friend like me
+George Bush doesn&#39;t care about black people
