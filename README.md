@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-George Bush doesn&#39;t care about black people
+There&#39;s so many lonely emojis man
