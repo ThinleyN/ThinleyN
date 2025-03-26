@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-There&#39;s so many lonely emojis man
+People tried to talk me out of running for President. Never let weak controlling people kill your spirit
