@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-We will change the paradigm
+Let&#39;s be like water
