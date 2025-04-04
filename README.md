@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-My greatest pain in life is that I will never be able to see myself perform live.
+I really love my Tesla. I&#39;m in the future. Thank you Elon.
