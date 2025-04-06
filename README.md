@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-My greatest award is what I&#39;m about to do.
+I am running for President of the United States
