@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I am running for President of the United States
+Believe in your flyness...conquer your shyness.
