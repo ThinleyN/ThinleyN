@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Believe in your flyness...conquer your shyness.
+There are 5 main pillars in a professional musicians business - Recording, Publishing, Touring, Merchandise &amp; Name and likeness
