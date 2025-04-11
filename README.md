@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-My memories are from the future
+The thought police want to suppress freedom of thought
