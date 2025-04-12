@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-The thought police want to suppress freedom of thought
+People only get jealous when they care.
