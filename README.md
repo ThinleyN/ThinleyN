@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-We have to evolve
+Today is the best day ever and tomorrow&#39;s going to be even better
