@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Today is the best day ever and tomorrow&#39;s going to be even better
+I really love my Tesla. I&#39;m in the future. Thank you Elon.
