@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I spoke to Dave Chapelle for two hours this morning. He is our modern day Socrates
+Shut the fuck up I will fucking laser you with alien fucking eyes and explode your fucking head
