@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Winning is the only option
+We must form a union. We must unify
