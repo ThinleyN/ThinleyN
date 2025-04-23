@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-We must form a union. We must unify
+My mother in law Kris Jenner ... makes the best music playlist
