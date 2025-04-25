@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-My memories are from the future
+I&#39;m the new Moses
