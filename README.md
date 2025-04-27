@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Distraction is the enemy of vision
+I don&#39;t expect to be understood at all.
