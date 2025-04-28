@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I don&#39;t expect to be understood at all.
+I care. I care about everything. Sometimes not giving a f#%k is caring the most.
