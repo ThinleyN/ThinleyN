@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Tweeting is legal and also therapeutic
+I don&#39;t expect to be understood at all.
