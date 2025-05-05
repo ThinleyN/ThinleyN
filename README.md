@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Sometimes I push the door close button on people running towards the elevator. I just need my own elevator sometimes. My sanctuary.
+I don&#39;t wanna see no woke tweets or hear no woke raps ... it&#39;s show time ... it&#39;s a whole different energy right now
