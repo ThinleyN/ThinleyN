@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Sometimes you have to get rid of everything
+Style is genderless
