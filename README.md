@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Style is genderless
+I feel like I&#39;m too busy writing history to read it.
