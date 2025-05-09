@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I feel like I&#39;m too busy writing history to read it.
+If I don&#39;t scream, if I don&#39;t say something then no one&#39;s going to say anything.
