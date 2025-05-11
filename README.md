@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I don&#39;t wanna see no woke tweets or hear no woke raps ... it&#39;s show time ... it&#39;s a whole different energy right now
+I&#39;m the best
