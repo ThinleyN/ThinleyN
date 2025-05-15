@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I need an army of angels to cover me while I pull this sword out of the stone
+Keep your nose out the sky, keep your heart to god, and keep your face to the rising sun.
