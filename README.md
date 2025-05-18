@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-There&#39;s a crying need for civility across the board. We need to and will come together in the name of Jesus.
+I was just speaking with someone that told me their life story and they used to be homeless.
