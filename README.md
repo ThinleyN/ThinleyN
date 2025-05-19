@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I was just speaking with someone that told me their life story and they used to be homeless.
+I honestly need all my Royeres to be museum quality... if I see a fake Royere Ima have to Rick James your couch
