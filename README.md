@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-For me, money is not my definition of success. Inspiring people is a definition of success
+For me to say I wasn&#39;t a genius I&#39;d just be lying to you and to myself
