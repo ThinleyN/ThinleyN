@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-For me to say I wasn&#39;t a genius I&#39;d just be lying to you and to myself
+We will change the paradigm
