@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-We will change the paradigm
+All the musicians will be free
