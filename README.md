@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-All the musicians will be free
+My greatest pain in life is that I will never be able to see myself perform live.
