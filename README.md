@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Today is the best day ever and tomorrow&#39;s going to be even better
+My first pillar when I&#39;m on the board of adidas will be an adidas Nike collaboration to support community growth
