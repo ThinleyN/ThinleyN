@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Buy property
+Life is the ultimate gift
