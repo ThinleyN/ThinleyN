@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Life is the ultimate gift
+I am one of the most famous people on the planet
