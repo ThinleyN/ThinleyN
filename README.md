@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I feel like I&#39;m too busy writing history to read it.
+Who made up the term major label in the first place???
