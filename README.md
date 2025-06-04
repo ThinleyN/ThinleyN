@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Perhaps I should have been more like water today
+I am one of the most famous people on the planet
