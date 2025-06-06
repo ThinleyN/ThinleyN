@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I leave my emojis bart Simpson color
+There are people sleeping in parking lots
