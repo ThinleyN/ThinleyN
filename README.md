@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-All you have to be is yourself
+My greatest award is what I&#39;m about to do.
