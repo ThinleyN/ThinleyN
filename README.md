@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-There&#39;s a crying need for civility across the board. We need to and will come together in the name of Jesus.
+I&#39;m giving all Good music artists back the 50% share I have of their masters
