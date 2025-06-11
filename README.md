@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I&#39;m giving all Good music artists back the 50% share I have of their masters
+My memories are from the future
