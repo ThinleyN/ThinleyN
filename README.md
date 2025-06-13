@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-We used to diss Michael Jackson the media made us call him crazy ... then they killed him
+I make awesome decisions in bike stores!!!
