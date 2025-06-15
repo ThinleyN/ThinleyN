@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Tweeting is legal and also therapeutic
+I honestly need all my Royeres to be museum quality... if I see a fake Royere Ima have to Rick James your couch
