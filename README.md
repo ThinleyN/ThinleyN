@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I honestly need all my Royeres to be museum quality... if I see a fake Royere Ima have to Rick James your couch
+We as a people will heal. We will insure the well being of each other
