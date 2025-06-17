@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-We as a people will heal. We will insure the well being of each other
+Ma$e is one of my favorite rappers and I based a lot of my flows off of him
