@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I&#39;m going to personally see to it that Taylor Swift gets her masters back. Scooter is a close family friend
+Keep your nose out the sky, keep your heart to god, and keep your face to the rising sun.
