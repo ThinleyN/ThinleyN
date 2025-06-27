@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-The world is our family
+We will be recognized
