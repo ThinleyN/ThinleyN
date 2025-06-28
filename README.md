@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-We will be recognized
+Perhaps I should have been more like water today
