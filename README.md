@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Perhaps I should have been more like water today
+I&#39;m the new Moses
