@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I am the head of Adidas. I will bring Adidas and Puma back together and bring me and jay back together
+I was just speaking with someone that told me their life story and they used to be homeless.
