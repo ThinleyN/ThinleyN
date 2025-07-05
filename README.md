@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-We must and will cure homelessness and hunger. We have the capability as a species
+My first pillar when I&#39;m on the board of adidas will be an adidas Nike collaboration to support community growth
