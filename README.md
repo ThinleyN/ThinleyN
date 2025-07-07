@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Tweeting is legal and also therapeutic
+The world is our office
