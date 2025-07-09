@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I need an army of angels to cover me while I pull this sword out of the stone
+I really love my Tesla. I&#39;m in the future. Thank you Elon.
