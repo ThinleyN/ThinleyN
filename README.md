@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-The thought police want to suppress freedom of thought
+Fur pillows are hard to actually sleep on
