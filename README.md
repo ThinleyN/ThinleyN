@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-All the musicians will be free
+People tried to talk me out of running for President. Never let weak controlling people kill your spirit
