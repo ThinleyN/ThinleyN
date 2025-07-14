@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-People tried to talk me out of running for President. Never let weak controlling people kill your spirit
+One of my favorite of many things about what the Trump hat represents to me is that people can&#39;t tell me what to do because I&#39;m black
