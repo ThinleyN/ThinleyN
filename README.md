@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I hate when I&#39;m on a flight and I wake up with a water bottle next to me like oh great now I gotta be responsible for this water bottle
+I am Warhol. I am the No. 1 most impactful artist of our generation. I am Shakespeare in the flesh.
