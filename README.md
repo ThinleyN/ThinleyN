@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I am Warhol. I am the No. 1 most impactful artist of our generation. I am Shakespeare in the flesh.
+If I don&#39;t scream, if I don&#39;t say something then no one&#39;s going to say anything.
