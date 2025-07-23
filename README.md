@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-We&#39;ve gotten comfortable with not having what we deserve
+Let&#39;s be like water
