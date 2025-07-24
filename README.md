@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Let&#39;s be like water
+We all self-conscious. I&#39;m just the first to admit it.
