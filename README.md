@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I leave my emojis bart Simpson color
+I make awesome decisions in bike stores!!!
