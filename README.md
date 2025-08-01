@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I make awesome decisions in bike stores!!!
+Winning is the only option
