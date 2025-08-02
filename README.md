@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Winning is the only option
+I love sleep; it&#39;s my favorite.
