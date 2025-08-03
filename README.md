@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I love sleep; it&#39;s my favorite.
+I hate when I&#39;m on a flight and I wake up with a water bottle next to me like oh great now I gotta be responsible for this water bottle
