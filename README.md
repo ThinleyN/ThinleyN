@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-My dad got me a drone for Christmas
+Distraction is the enemy of vision
