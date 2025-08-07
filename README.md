@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-We&#39;re going to move the entire music industry into the 21st Century
+I care. I care about everything. Sometimes not giving a f#%k is caring the most.
