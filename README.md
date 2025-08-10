@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I give up drinking every week
+We must and will cure homelessness and hunger. We have the capability as a species
