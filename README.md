@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I&#39;m the new Moses
+There are people sleeping in parking lots
