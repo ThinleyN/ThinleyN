@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Manga all day
+I am running for President of the United States
