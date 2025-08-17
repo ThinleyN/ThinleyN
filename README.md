@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I am running for President of the United States
+We&#39;ve gotten comfortable with not having what we deserve
