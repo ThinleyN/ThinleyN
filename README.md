@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-We&#39;re going to move the entire music industry into the 21st Century
+Ma$e is one of my favorite rappers and I based a lot of my flows off of him
