@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Ma$e is one of my favorite rappers and I based a lot of my flows off of him
+People say it&#39;s enough and I got my point across ... the point isn&#39;t across until we cross the point
