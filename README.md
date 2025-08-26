@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-We have to evolve
+We will heal. We will cure.
