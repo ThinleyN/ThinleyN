@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-We will heal. We will cure.
+We&#39;re going to move the entire music industry into the 21st Century
