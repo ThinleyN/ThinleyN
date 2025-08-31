@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-We have to evolve
+There are 5 main pillars in a professional musicians business - Recording, Publishing, Touring, Merchandise &amp; Name and likeness
