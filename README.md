@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I love sleep; it&#39;s my favorite.
+I&#39;m going to personally see to it that Taylor Swift gets her masters back. Scooter is a close family friend
