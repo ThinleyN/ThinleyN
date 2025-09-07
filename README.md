@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Keep squares out yo circle
+I wish I had a friend like me
