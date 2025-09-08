@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I wish I had a friend like me
+We must form a union. We must unify
