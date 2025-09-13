@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-We will heal. We will cure.
+Who made up the term major label in the first place???
