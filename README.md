@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Distraction is the enemy of vision
+One day I&#39;m gon&#39; marry a porn star
