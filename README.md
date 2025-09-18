@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I feel calm but energized
+My memories are from the future
