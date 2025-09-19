@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-My memories are from the future
+I&#39;ve known my mom since I was zero years old. She is quite dope.
