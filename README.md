@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-There are people sleeping in parking lots
+We used to diss Michael Jackson the media made us call him crazy ... then they killed him
