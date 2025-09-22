@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-We used to diss Michael Jackson the media made us call him crazy ... then they killed him
+So many of us need so much less than we have especially when so many of us are in need
