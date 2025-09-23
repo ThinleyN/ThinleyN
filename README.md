@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-So many of us need so much less than we have especially when so many of us are in need
+Two years ago we had 50 million people subscribed to music streaming services around the world. Today we have 400 million.
