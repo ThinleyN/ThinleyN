@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Two years ago we had 50 million people subscribed to music streaming services around the world. Today we have 400 million.
+I honestly need all my Royeres to be museum quality... if I see a fake Royere Ima have to Rick James your couch
