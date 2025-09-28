@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-We must form a union. We must unify
+So many of us need so much less than we have especially when so many of us are in need
