@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Two years ago we had 50 million people subscribed to music streaming services around the world. Today we have 400 million.
+Shut the fuck up I will fucking laser you with alien fucking eyes and explode your fucking head
