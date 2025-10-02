@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I love UZI. I be saying the same thing about Steve Jobs. I be feeling just like UZI
+For me, money is not my definition of success. Inspiring people is a definition of success
