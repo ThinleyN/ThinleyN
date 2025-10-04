@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Let&#39;s be like water
+Just stop lying about shit. Just stop lying.
