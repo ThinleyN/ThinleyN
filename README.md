@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Just stop lying about shit. Just stop lying.
+The media tries to kill our heroes one at a time
