@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-The media tries to kill our heroes one at a time
+I feel like me and Taylor might still have sex
