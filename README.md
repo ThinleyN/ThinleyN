@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Culture is the most powerful force in humanity under God
+People always tell you &#39;Be humble. Be humble.&#39; When was the last time someone told you to be amazing? Be great! Be awesome! Be awesome!
