@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-People always tell you &#39;Be humble. Be humble.&#39; When was the last time someone told you to be amazing? Be great! Be awesome! Be awesome!
+Fur pillows are hard to actually sleep on
