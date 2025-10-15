@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Fur pillows are hard to actually sleep on
+We are here to complete the revolution. We are building the future
