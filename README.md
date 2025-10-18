@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-We&#39;ve gotten comfortable with not having what we deserve
+Shut the fuck up I will fucking laser you with alien fucking eyes and explode your fucking head
