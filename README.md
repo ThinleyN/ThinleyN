@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I&#39;m the new Moses
+Artists are founders
