@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Artists are founders
+I&#39;ve known my mom since I was zero years old. She is quite dope.
