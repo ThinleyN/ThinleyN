@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I&#39;ve known my mom since I was zero years old. She is quite dope.
+I don&#39;t expect to be understood at all.
