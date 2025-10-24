@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I wish I had a friend like me
+I&#39;ll say things that are serious and put them in a joke form so people can enjoy them. We laugh to keep from crying.
