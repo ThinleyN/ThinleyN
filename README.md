@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-George Bush doesn&#39;t care about black people
+Winning is the only option
