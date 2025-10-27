@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Winning is the only option
+I want the world to be better! All I want is positive! All I want is dopeness!
