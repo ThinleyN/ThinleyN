@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-There&#39;s so many lonely emojis man
+My memories are from the future
