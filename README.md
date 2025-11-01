@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Truth is my goal. Controversy is my gym. I&#39;ll do a hundred reps of controversy for a 6 pack of truth
+I don&#39;t wanna see no woke tweets or hear no woke raps ... it&#39;s show time ... it&#39;s a whole different energy right now
