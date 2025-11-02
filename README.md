@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I don&#39;t wanna see no woke tweets or hear no woke raps ... it&#39;s show time ... it&#39;s a whole different energy right now
+My first pillar when I&#39;m on the board of adidas will be an adidas Nike collaboration to support community growth
