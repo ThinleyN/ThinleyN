@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-George Bush doesn&#39;t care about black people
+I think I do myself a disservice by comparing myself to Steve Jobs and Walt Disney and human beings that we&#39;ve seen before. It should be more like Willy Wonka...and welcome to my chocolate factory.
