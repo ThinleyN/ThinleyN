@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I&#39;m on the pursuit of awesomeness, excellence is the bare minimum.
+Pulling up in the may bike
