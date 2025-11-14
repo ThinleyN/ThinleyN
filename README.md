@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I don&#39;t wanna see no woke tweets or hear no woke raps ... it&#39;s show time ... it&#39;s a whole different energy right now
+Ma$e is one of my favorite rappers and I based a lot of my flows off of him
