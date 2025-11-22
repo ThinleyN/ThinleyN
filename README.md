@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I watch Bladerunner on repeat
+I am one of the most famous people on the planet
