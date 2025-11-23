@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I am one of the most famous people on the planet
+Pulling up in the may bike
