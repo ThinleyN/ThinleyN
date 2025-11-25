@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-People say it&#39;s enough and I got my point across ... the point isn&#39;t across until we cross the point
+There&#39;s a crying need for civility across the board. We need to and will come together in the name of Jesus.
