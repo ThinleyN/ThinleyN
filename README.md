@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Decentralize
+All you have to be is yourself
