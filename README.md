@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-There are people sleeping in parking lots
+I need an army of angels to cover me while I pull this sword out of the stone
