@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I need an army of angels to cover me while I pull this sword out of the stone
+Manga all day
