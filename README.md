@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Manga all day
+All the musicians will be free
