@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-All the musicians will be free
+The media tries to kill our heroes one at a time
