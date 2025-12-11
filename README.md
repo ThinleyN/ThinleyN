@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-The media tries to kill our heroes one at a time
+George Bush doesn&#39;t care about black people
