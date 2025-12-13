@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Today is the best day ever and tomorrow&#39;s going to be even better
+We used to diss Michael Jackson the media made us call him crazy ... then they killed him
