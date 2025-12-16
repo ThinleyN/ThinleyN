@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I love sleep; it&#39;s my favorite.
+We&#39;re going to move the entire music industry into the 21st Century
