@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-There are 5 main pillars in a professional musicians business - Recording, Publishing, Touring, Merchandise &amp; Name and likeness
+There&#39;s a crying need for civility across the board. We need to and will come together in the name of Jesus.
