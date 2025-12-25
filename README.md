@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-The world needs more Joy... this idea is super fresh
+I&#39;m on the pursuit of awesomeness, excellence is the bare minimum.
