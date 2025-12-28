@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I&#39;d like to meet with Tim Cook. I got some ideas
+Sometimes I push the door close button on people running towards the elevator. I just need my own elevator sometimes. My sanctuary.
