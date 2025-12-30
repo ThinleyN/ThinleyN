@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Today is the best day ever and tomorrow&#39;s going to be even better
+Fur pillows are hard to actually sleep on
