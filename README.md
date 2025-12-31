@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Fur pillows are hard to actually sleep on
+The world needs more Joy... this idea is super fresh
