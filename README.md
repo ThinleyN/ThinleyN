@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I don&#39;t expect to be understood at all.
+Keep your nose out the sky, keep your heart to god, and keep your face to the rising sun.
