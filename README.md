@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Keep your nose out the sky, keep your heart to god, and keep your face to the rising sun.
+Everything you do in life stems from either fear or love
