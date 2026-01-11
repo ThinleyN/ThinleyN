@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-There are people sleeping in parking lots
+I&#39;m going to personally see to it that Taylor Swift gets her masters back. Scooter is a close family friend
