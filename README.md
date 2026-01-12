@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I&#39;m going to personally see to it that Taylor Swift gets her masters back. Scooter is a close family friend
+My first pillar when I&#39;m on the board of adidas will be an adidas Nike collaboration to support community growth
