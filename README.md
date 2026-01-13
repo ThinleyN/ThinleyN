@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-My first pillar when I&#39;m on the board of adidas will be an adidas Nike collaboration to support community growth
+I want the world to be better! All I want is positive! All I want is dopeness!
