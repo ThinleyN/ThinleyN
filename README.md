@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I want the world to be better! All I want is positive! All I want is dopeness!
+If you have the opportunity to play this game of life you need to appreciate every moment. a lot of people don&#39;t appreciate the moment until it&#39;s passed.
