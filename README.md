@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Burn that excel spread sheet
+My dad got me a drone for Christmas
