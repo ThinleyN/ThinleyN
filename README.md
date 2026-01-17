@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-My dad got me a drone for Christmas
+We must and will cure homelessness and hunger. We have the capability as a species
