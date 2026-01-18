@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-We must and will cure homelessness and hunger. We have the capability as a species
+We are here to complete the revolution. We are building the future
