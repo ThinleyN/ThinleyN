@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I wish I had a friend like me
+My greatest award is what I&#39;m about to do.
