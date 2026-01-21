@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-My greatest award is what I&#39;m about to do.
+There&#39;s a crying need for civility across the board. We need to and will come together in the name of Jesus.
