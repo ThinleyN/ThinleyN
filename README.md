@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-So many of us need so much less than we have especially when so many of us are in need
+Truth is my goal. Controversy is my gym. I&#39;ll do a hundred reps of controversy for a 6 pack of truth
