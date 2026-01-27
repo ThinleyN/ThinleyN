@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-My mother in law Kris Jenner ... makes the best music playlist
+I care. I care about everything. Sometimes not giving a f#%k is caring the most.
