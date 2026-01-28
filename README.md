@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I care. I care about everything. Sometimes not giving a f#%k is caring the most.
+Trust me ... I won&#39;t stop
