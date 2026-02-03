@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Everything you do in life stems from either fear or love
+We used to diss Michael Jackson the media made us call him crazy ... then they killed him
