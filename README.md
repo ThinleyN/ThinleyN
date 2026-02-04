@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-We used to diss Michael Jackson the media made us call him crazy ... then they killed him
+I don&#39;t expect to be understood at all.
