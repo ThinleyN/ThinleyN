@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I don&#39;t expect to be understood at all.
+You basically can say anything to someone on an email or text as long as you put LOL at the end.
