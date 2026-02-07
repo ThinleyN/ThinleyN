@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Manga all day
+I&#39;m nice at ping pong
