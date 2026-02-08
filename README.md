@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I&#39;m nice at ping pong
+So many of us need so much less than we have especially when so many of us are in need
