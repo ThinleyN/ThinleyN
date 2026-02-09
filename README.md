@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-So many of us need so much less than we have especially when so many of us are in need
+I give up drinking every week
