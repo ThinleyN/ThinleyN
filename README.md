@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-All the musicians will be free
+Perhaps I should have been more like water today
