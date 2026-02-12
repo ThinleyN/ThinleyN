@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Perhaps I should have been more like water today
+I want the world to be better! All I want is positive! All I want is dopeness!
