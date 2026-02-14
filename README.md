@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I&#39;m a creative genius
+My mother in law Kris Jenner ... makes the best music playlist
