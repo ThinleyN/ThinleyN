@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I&#39;m a creative genius
+All the musicians will be free
