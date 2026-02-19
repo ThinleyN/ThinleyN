@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-All the musicians will be free
+Two years ago we had 50 million people subscribed to music streaming services around the world. Today we have 400 million.
