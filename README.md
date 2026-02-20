@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Two years ago we had 50 million people subscribed to music streaming services around the world. Today we have 400 million.
+We&#39;re going to move the entire music industry into the 21st Century
