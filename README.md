@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-We&#39;re going to move the entire music industry into the 21st Century
+People tried to talk me out of running for President. Never let weak controlling people kill your spirit
