@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I&#39;ve known my mom since I was zero years old. She is quite dope.
+Ma$e is one of my favorite rappers and I based a lot of my flows off of him
