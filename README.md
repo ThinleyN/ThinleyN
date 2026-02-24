@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Ma$e is one of my favorite rappers and I based a lot of my flows off of him
+I care. I care about everything. Sometimes not giving a f#%k is caring the most.
