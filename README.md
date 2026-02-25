@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I care. I care about everything. Sometimes not giving a f#%k is caring the most.
+My mama was a&#39; English teacher. I know how to use correct English but sometimes I just don&#39;t feel like it aaaand I ain&#39;t got to
