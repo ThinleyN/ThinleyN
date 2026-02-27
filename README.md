@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-George Bush doesn&#39;t care about black people
+Just stop lying about shit. Just stop lying.
