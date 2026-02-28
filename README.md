@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Just stop lying about shit. Just stop lying.
+I leave my emojis bart Simpson color
