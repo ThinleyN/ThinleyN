@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I leave my emojis bart Simpson color
+Culture is the most powerful force in humanity under God
