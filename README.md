@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Culture is the most powerful force in humanity under God
+I&#39;m giving all Good music artists back the 50% share I have of their masters
