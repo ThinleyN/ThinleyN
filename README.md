@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I&#39;m giving all Good music artists back the 50% share I have of their masters
+If I got any cooler I would freeze to death
