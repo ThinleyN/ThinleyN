@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-If I got any cooler I would freeze to death
+Pulling up in the may bike
