@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-We all self-conscious. I&#39;m just the first to admit it.
+I am one of the most famous people on the planet
