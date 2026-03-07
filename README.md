@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I am one of the most famous people on the planet
+Keep your nose out the sky, keep your heart to god, and keep your face to the rising sun.
