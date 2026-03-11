@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-You can&#39;t look at a glass half full or empty if it&#39;s overflowing.
+I want the world to be better! All I want is positive! All I want is dopeness!
