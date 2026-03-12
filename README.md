@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I want the world to be better! All I want is positive! All I want is dopeness!
+Style is genderless
