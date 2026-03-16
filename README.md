@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Everything you do in life stems from either fear or love
+I honestly need all my Royeres to be museum quality... if I see a fake Royere Ima have to Rick James your couch
