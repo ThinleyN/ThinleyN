@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I feel calm but energized
+I give up drinking every week
