@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I channel Will Ferrell when I&#39;m at the daddy daughter dances
+My mother in law Kris Jenner ... makes the best music playlist
