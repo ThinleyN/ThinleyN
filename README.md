@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-My mother in law Kris Jenner ... makes the best music playlist
+One day I&#39;m gon&#39; marry a porn star
