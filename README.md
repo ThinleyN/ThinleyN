@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-One day I&#39;m gon&#39; marry a porn star
+Truth is my goal. Controversy is my gym. I&#39;ll do a hundred reps of controversy for a 6 pack of truth
