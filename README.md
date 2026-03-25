@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Just stop lying about shit. Just stop lying.
+My mother in law Kris Jenner ... makes the best music playlist
