@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I honestly need all my Royeres to be museum quality... if I see a fake Royere Ima have to Rick James your couch
+I hate when I&#39;m on a flight and I wake up with a water bottle next to me like oh great now I gotta be responsible for this water bottle
