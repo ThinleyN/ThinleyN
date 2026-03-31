@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Trust me ... I won&#39;t stop
+I still think I am the greatest.
