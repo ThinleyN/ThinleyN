@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I still think I am the greatest.
+For me, money is not my definition of success. Inspiring people is a definition of success
