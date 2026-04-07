@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I&#39;m nice at ping pong
+The media tries to kill our heroes one at a time
