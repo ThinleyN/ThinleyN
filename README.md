@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-You can&#39;t look at a glass half full or empty if it&#39;s overflowing.
+For me, money is not my definition of success. Inspiring people is a definition of success
