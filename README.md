@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Tweeting is legal and also therapeutic
+All you have to be is yourself
