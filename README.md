@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-All you have to be is yourself
+I watch Bladerunner on repeat
