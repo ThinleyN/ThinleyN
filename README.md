@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-We must and will cure homelessness and hunger. We have the capability as a species
+I think I do myself a disservice by comparing myself to Steve Jobs and Walt Disney and human beings that we&#39;ve seen before. It should be more like Willy Wonka...and welcome to my chocolate factory.
