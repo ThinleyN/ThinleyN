@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Culture is the most powerful force in humanity under God
+Let&#39;s be like water
