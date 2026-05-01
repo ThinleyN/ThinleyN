@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-My first pillar when I&#39;m on the board of adidas will be an adidas Nike collaboration to support community growth
+I really love my Tesla. I&#39;m in the future. Thank you Elon.
