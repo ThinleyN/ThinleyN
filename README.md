@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-My mother in law Kris Jenner ... makes the best music playlist
+2024
