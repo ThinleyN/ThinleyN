@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Man... whatever happened to my antique fish tank?
+There&#39;s so many lonely emojis man
