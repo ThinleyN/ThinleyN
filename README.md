@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-The world needs more Joy... this idea is super fresh
+Everything you do in life stems from either fear or love
