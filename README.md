@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Distraction is the enemy of vision
+The world needs more Joy... this idea is super fresh
