@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I want the world to be better! All I want is positive! All I want is dopeness!
+My greatest award is what I&#39;m about to do.
