@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I feel like me and Taylor might still have sex
+I am running for President of the United States
