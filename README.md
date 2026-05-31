@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I am running for President of the United States
+Let&#39;s be like water
