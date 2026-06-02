@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I leave my emojis bart Simpson color
+Ma$e is one of my favorite rappers and I based a lot of my flows off of him
