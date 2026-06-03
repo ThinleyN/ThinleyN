@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Ma$e is one of my favorite rappers and I based a lot of my flows off of him
+People always say that you can&#39;t please everybody. I think that&#39;s a cop-out. Why not attempt it? Cause think of all the people that you will please if you try.
