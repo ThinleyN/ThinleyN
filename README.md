@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Only free thinkers
+Decentralize
