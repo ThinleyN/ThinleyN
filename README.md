@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Decentralize
+We came into a broken world. And we&#39;re the cleanup crew.
