@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-My dad got me a drone for Christmas
+Sometimes I push the door close button on people running towards the elevator. I just need my own elevator sometimes. My sanctuary.
