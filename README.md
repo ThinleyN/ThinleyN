@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I&#39;m giving all Good music artists back the 50% share I have of their masters
+I don&#39;t wanna see no woke tweets or hear no woke raps ... it&#39;s show time ... it&#39;s a whole different energy right now
