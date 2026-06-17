@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-We will cure hunger
+My dad got me a drone for Christmas
