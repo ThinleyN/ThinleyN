@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-My dad got me a drone for Christmas
+My greatest pain in life is that I will never be able to see myself perform live.
