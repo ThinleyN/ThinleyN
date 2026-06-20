@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Sometimes I push the door close button on people running towards the elevator. I just need my own elevator sometimes. My sanctuary.
+I channel Will Ferrell when I&#39;m at the daddy daughter dances
