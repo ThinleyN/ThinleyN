@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I&#39;m the best
+I&#39;m a creative genius
