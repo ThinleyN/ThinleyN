@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-My greatest pain in life is that I will never be able to see myself perform live.
+We must form a union. We must unify
