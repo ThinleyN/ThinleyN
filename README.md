@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I don&#39;t expect to be understood at all.
+I&#39;d like to meet with Tim Cook. I got some ideas
