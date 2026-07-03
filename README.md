@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I&#39;d like to meet with Tim Cook. I got some ideas
+The world needs more Joy... this idea is super fresh
