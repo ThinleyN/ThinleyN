@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-We as a people will heal. We will insure the well being of each other
+People always say that you can&#39;t please everybody. I think that&#39;s a cop-out. Why not attempt it? Cause think of all the people that you will please if you try.
