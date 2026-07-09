@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I&#39;m nice at ping pong
+I love sleep; it&#39;s my favorite.
