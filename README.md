@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I love sleep; it&#39;s my favorite.
+Trust me ... I won&#39;t stop
