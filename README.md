@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Trust me ... I won&#39;t stop
+People tried to talk me out of running for President. Never let weak controlling people kill your spirit
