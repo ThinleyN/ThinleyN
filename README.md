@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-We will heal. We will cure.
+For me, money is not my definition of success. Inspiring people is a definition of success
