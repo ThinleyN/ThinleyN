@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-The world is our family
+Sometimes I push the door close button on people running towards the elevator. I just need my own elevator sometimes. My sanctuary.
