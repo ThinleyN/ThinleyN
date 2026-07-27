@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I&#39;m on the pursuit of awesomeness, excellence is the bare minimum.
+If I don&#39;t scream, if I don&#39;t say something then no one&#39;s going to say anything.
