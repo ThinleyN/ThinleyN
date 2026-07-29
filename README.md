@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I don&#39;t expect to be understood at all.
+All you have to be is yourself
