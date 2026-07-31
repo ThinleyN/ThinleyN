@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I make awesome decisions in bike stores!!!
+I love sleep; it&#39;s my favorite.
