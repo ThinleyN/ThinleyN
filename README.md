@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Style is genderless
+I&#39;m nice at ping pong
