@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I was just speaking with someone that told me their life story and they used to be homeless.
+I&#39;ve known my mom since I was zero years old. She is quite dope.
