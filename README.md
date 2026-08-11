@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-The world needs more Joy... this idea is super fresh
+I love UZI. I be saying the same thing about Steve Jobs. I be feeling just like UZI
