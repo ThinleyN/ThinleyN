@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Let&#39;s be like water
+I honestly need all my Royeres to be museum quality... if I see a fake Royere Ima have to Rick James your couch
