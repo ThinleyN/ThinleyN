@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-We must form a union. We must unify
+People say it&#39;s enough and I got my point across ... the point isn&#39;t across until we cross the point
