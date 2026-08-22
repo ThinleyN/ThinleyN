@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Style is genderless
+I don&#39;t expect to be understood at all.
