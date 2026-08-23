@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I don&#39;t expect to be understood at all.
+The media tries to kill our heroes one at a time
