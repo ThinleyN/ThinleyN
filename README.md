@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-The media tries to kill our heroes one at a time
+There are people sleeping in parking lots
