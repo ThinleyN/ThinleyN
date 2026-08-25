@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-There are people sleeping in parking lots
+My dad got me a drone for Christmas
