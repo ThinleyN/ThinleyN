@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-My dad got me a drone for Christmas
+I&#39;m a creative genius
