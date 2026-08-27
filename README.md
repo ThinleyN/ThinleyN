@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I&#39;m a creative genius
+I feel like I&#39;m too busy writing history to read it.
