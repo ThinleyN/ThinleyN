@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I feel like I&#39;m too busy writing history to read it.
+I channel Will Ferrell when I&#39;m at the daddy daughter dances
