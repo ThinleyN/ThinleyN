@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I channel Will Ferrell when I&#39;m at the daddy daughter dances
+Believe in your flyness...conquer your shyness.
