@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Artists are founders
+We as a people will heal. We will insure the well being of each other
