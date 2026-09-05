@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-2024
+I channel Will Ferrell when I&#39;m at the daddy daughter dances
