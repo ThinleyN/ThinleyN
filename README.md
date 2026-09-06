@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I channel Will Ferrell when I&#39;m at the daddy daughter dances
+Shut the fuck up I will fucking laser you with alien fucking eyes and explode your fucking head
