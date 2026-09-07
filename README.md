@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Shut the fuck up I will fucking laser you with alien fucking eyes and explode your fucking head
+I&#39;ve known my mom since I was zero years old. She is quite dope.
