@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Empathy is the glue
+Decentralize
