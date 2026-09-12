@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-For me giving up is way harder than trying.
+My greatest pain in life is that I will never be able to see myself perform live.
