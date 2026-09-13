@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-My greatest pain in life is that I will never be able to see myself perform live.
+Ma$e is one of my favorite rappers and I based a lot of my flows off of him
