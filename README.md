@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-We all self-conscious. I&#39;m just the first to admit it.
+Shut the fuck up I will fucking laser you with alien fucking eyes and explode your fucking head
