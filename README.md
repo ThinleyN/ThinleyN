@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-All the musicians will be free
+We must form a union. We must unify
