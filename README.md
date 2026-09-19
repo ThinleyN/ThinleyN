@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-We must form a union. We must unify
+All you have to be is yourself
