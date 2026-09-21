@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I give up drinking every week
+I&#39;m on the pursuit of awesomeness, excellence is the bare minimum.
