@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Let&#39;s be like water
+I&#39;m the best
