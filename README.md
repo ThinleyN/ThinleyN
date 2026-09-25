@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I&#39;m the best
+I leave my emojis bart Simpson color
