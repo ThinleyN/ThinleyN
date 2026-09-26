@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I leave my emojis bart Simpson color
+We came into a broken world. And we&#39;re the cleanup crew.
