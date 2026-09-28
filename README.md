@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I&#39;m a creative genius
+We are here to complete the revolution. We are building the future
