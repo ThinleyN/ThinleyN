@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-We will be recognized
+I spoke to Dave Chapelle for two hours this morning. He is our modern day Socrates
