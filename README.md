@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I spoke to Dave Chapelle for two hours this morning. He is our modern day Socrates
+We will cure hunger
