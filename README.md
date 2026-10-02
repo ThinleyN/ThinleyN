@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-We will cure hunger
+We will change the paradigm
