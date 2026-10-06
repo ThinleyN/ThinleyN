@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Keep squares out yo circle
+I make awesome decisions in bike stores!!!
