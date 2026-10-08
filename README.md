@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Pulling up in the may bike
+Distraction is the enemy of vision
