@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Distraction is the enemy of vision
+Trust me ... I won&#39;t stop
