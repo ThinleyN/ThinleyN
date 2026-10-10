@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Trust me ... I won&#39;t stop
+Style is genderless
