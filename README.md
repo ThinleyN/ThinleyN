@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Style is genderless
+We as a people will heal. We will insure the well being of each other
