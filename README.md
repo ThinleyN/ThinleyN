@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-We as a people will heal. We will insure the well being of each other
+We&#39;re going to move the entire music industry into the 21st Century
