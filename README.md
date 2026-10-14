@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I don&#39;t expect to be understood at all.
+We&#39;re going to move the entire music industry into the 21st Century
