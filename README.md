@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-2024
+Have you ever thought you were in love with someone but then realized you were just staring in a mirror for 20 minutes?
