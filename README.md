@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Empathy is the glue
+We all self-conscious. I&#39;m just the first to admit it.
