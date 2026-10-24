@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I feel like me and Taylor might still have sex
+We must and will cure homelessness and hunger. We have the capability as a species
