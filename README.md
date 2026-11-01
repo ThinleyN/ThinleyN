@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Sometimes you have to get rid of everything
+I channel Will Ferrell when I&#39;m at the daddy daughter dances
