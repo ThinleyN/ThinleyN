@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I channel Will Ferrell when I&#39;m at the daddy daughter dances
+I&#39;d like to meet with Tim Cook. I got some ideas
