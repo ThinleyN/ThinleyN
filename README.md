@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I&#39;d like to meet with Tim Cook. I got some ideas
+Everything you do in life stems from either fear or love
