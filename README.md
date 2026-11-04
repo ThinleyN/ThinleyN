@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Everything you do in life stems from either fear or love
+I spoke to Dave Chapelle for two hours this morning. He is our modern day Socrates
