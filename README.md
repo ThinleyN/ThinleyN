@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I spoke to Dave Chapelle for two hours this morning. He is our modern day Socrates
+I am running for President of the United States
