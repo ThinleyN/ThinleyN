@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I&#39;m nice at ping pong
+Two years ago we had 50 million people subscribed to music streaming services around the world. Today we have 400 million.
