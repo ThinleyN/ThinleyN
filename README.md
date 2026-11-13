@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I still think I am the greatest.
+We as a people will heal. We will insure the well being of each other
