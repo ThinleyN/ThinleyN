@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Let&#39;s be like water
+We will cure hunger
