@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-We will cure hunger
+Keep your nose out the sky, keep your heart to god, and keep your face to the rising sun.
