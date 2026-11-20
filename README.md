@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-We will be recognized
+I was just speaking with someone that told me their life story and they used to be homeless.
