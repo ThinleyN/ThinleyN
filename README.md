@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I was just speaking with someone that told me their life story and they used to be homeless.
+We will heal. We will cure.
