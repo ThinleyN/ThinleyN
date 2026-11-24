@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-Shut the fuck up I will fucking laser you with alien fucking eyes and explode your fucking head
+I really love my Tesla. I&#39;m in the future. Thank you Elon.
