@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-2024
+I feel like me and Taylor might still have sex
