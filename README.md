@@ -53,4 +53,4 @@
 
 Kanye quote of the day
 ---
-I feel like me and Taylor might still have sex
+We must form a union. We must unify
